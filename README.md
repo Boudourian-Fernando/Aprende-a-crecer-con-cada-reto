@@ -1,1 +1,2 @@
 # Aprende-a-crecer-con-cada-reto
+La resiliencia es clave en cualquier ámbito profesional. No se trata solo de resistir, sino de aprender de cada error y seguir adelante con más fuerza. Adaptarse a los cambios y mantenerse motivado hace la diferencia entre estancarse o evolucionar. Construir resiliencia requiere práctica, pero su impacto es invaluable. Fijar metas claras y rodearse de una red de apoyo es esencial para crecer.
